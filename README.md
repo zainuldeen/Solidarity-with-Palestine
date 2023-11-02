@@ -13,6 +13,7 @@
 - [Jews Ki Asli Taqat - Sahil Adeem](https://www.youtube.com/watch?v=18sp0dWs7v8)
 - [Books Recommended by Sahil Adeem](https://www.youtube.com/watch?v=9Vl-O_Y08fw)
 - [How to Understand Jews Psychology to Help Palestine | Sahil Adeem](https://www.youtube.com/watch?v=_Z865j6YibU)
+- [Jews vs Zionist | History of Zionism | Sahil Adeem | Israel Palestine War](https://www.youtube.com/watch?v=-y_kZ54fowQ)
 
 **[for more check youtube](https://www.youtube.com/results?search_query=shail+nadeem+about+palestine)**
 
