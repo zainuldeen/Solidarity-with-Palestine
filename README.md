@@ -9,6 +9,12 @@
 **Content from Urdu Speakers**
 
 - [israel Palestine War Ki Asal Kahani by Sahil Adeem](https://www.youtube.com/watch?v=Tkg0VLnoBAA)
+- [Yahudiyun K Sab Say Bry Rahab Ka Qisa - Sahil Adeem](https://www.youtube.com/watch?v=attBZcXqbkQ)
+- [Jews Ki Asli Taqat - Sahil Adeem](https://www.youtube.com/watch?v=18sp0dWs7v8)
+- [Books Recommended by Sahil Adeem](https://www.youtube.com/watch?v=9Vl-O_Y08fw)
+- [How to Understand Jews Psychology to Help Palestine | Sahil Adeem](https://www.youtube.com/watch?v=_Z865j6YibU)
+
+**[for more check youtube](https://www.youtube.com/results?search_query=shail+nadeem+about+palestine)**
 
 ## Text
 
