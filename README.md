@@ -36,3 +36,5 @@
 **Books**
 
 - [gaza-an-inquest-into-its-martyrdom from Gaza by Norman G. Finkelstein](https://github.com/zainuldeen/Solidarity-with-Palestine/raw/main/gaza-an-inquest-into-its-martyrdom.pdf)
+
+### [More Resources](https://github.com/aborazmeh/awesome-palestine#history)
